@@ -1,5 +1,4 @@
 - 👋 I'm JENSING SAMUEL 
-- 👀 I’m interested in ETHICAL HACKING
 - 🌱 I’m currently doing B.Tech INFORMATION TECHNOLOGY 
 - 💞️ 
 - 📫 jsam97976@gmail.com
